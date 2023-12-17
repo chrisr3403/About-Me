@@ -4,7 +4,7 @@
 
 **ChristianR484@nycstudents.net**
 
-**Christian Ramos was born and grew up in Brookyln New York in 2008. He grew up wanting to become a scientist but then thought about not only being a scientist but technical engineer. Here is the school schdule of his.
+**Christian Ramos was born and grew up in Brookyln New York in 2008. He grew up wanting to become a scientist but then thought about not only being a scientist but technical engineer. Here is the school schdule of his.**
 
 1. Algebra
 2. AP World History
