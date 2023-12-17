@@ -1,6 +1,6 @@
 # About-Me
 
-_Christian Ramos_
+*Christian Ramos*
 
 ChristianR484@nycstudents.net
 At +
