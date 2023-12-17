@@ -1,6 +1,7 @@
-# About-Me
+# Christian Ramos
+# Student
+# High school of Telecommunications arts and technolagy 
 
-# **Christian** **Ramos**
 
 ChristianR484@nycstudents.net
-At +
+
